@@ -217,4 +217,4 @@ Workrave is available as a **complete free version** with all features and updat
 Take the first step towards a healthier you by downloading **Workrave** today! Your body will thank you.
 
 ---
-**Last updated:** 2026-10-06 20:04:14 UTC
+**Last updated:** 2026-10-07 00:28:39 UTC
